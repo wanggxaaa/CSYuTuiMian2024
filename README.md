@@ -326,6 +326,7 @@
 
 ~~【报名截止：8.7】[中国人民解放军军事科学院2025年直接选拔招录推荐免试入伍攻读硕士研究生的通知](https://mp.weixin.qq.com/s/t7kIUoykhrrxnJRMi2g9Tw)~~
 
+[军事科学院2025年接收优秀应届本科毕业生免试攻读研究生预通知](https://mp.weixin.qq.com/s/JD2kyeYm2TlN1vmXXG2ivA)
 ## 空军工程大学
 
 ~~【截止日期：8.8 18：00】[空军工程大学2025年直接选拔招录入伍攻读硕士研究生预报名通知](https://www.afeu.cn:1001/notice-announcement/462/)~~
